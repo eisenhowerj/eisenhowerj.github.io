@@ -1,1 +1,0 @@
-# eisenhowerj.github.io
